@@ -1,4 +1,4 @@
-#  
+#  ultimate mining tycoon Script hidden is the best ultimate mining tycoon Script, featuring infinite resources and auto-sell. Safe and powerful for all
 
 
 
